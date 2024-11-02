@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @EmaGiampi
 - 👀 I’m interested in Art
-- 🌱 I’m currently learning how to perfect my social and drawing skills
+- 🌱 I’m currently learning how to program
 - 💞️ I’m looking to collaborate on project with people
 - 📫 How to reach me emagiampy2002@gmail.com
 - 😄 Pronouns: They/Them
